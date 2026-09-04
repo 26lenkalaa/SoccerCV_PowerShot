@@ -1,1 +1,0 @@
-# SoocerCV_PowerShot
